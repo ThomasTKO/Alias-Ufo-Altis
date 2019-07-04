@@ -12,8 +12,9 @@ For more info check out the video tutorial
 https://www.youtube.com/watch?v=xJkxcXkBJFQ 
 
 **about Alias**
-My Patreon Page: 
+
+Alias Patreon Page: 
 https://www.patreon.com/aliascartoons 
 
-My Twitter account 
+Alias Twitter account 
 https://twitter.com/ALIAScartoons 
