@@ -6,7 +6,7 @@ Become a Patron https://www.patreon.com/aliascartoons
 
 Donate a dollar or two to keep more mods.
 
-Original scripts can be found here: https://steamcommunity.com/sharedfiles/filedetails/?id=1790486345
+Original script can be found here: https://steamcommunity.com/sharedfiles/filedetails/?id=1790486345
 
 For more info check out the video tutorial 
 https://www.youtube.com/watch?v=xJkxcXkBJFQ 
