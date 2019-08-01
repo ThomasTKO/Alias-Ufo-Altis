@@ -22,4 +22,4 @@ https://twitter.com/ALIAScartoons
 More scripts by Alias here: https://steamcommunity.com/sharedfiles/filedetails/?id=1123074587
 
 
-![UFO](https://cdn.discordapp.com/attachments/382927612210708494/596216070382288896/20190704154919_1.jpg)
+![UFO](https://images-ext-1.discordapp.net/external/-ta8pRgzE3EXxM6oTl25DLW6tLRMu9nDzk-jncFJ7ho/%3Fwidth%3D1202%26height%3D677/https/media.discordapp.net/attachments/283245849767575553/605754414241808400/20190717033904_1.jpg?width=1200&height=676)
